@@ -40,7 +40,7 @@
 ### 📫 Reach Out
 - 📧 ujjwalkshatriya@outlook.com  
 - 📍 New Delhi, India  
-- 💼 [LinkedIn](https://www.linkedin.com/) *(add your profile link here)*
+- 💼 [LinkedIn] https://www.linkedin.com/in/ujjwal-solanki-36a094163/
 
 ---
 
